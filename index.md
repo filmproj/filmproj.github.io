@@ -1,7 +1,4 @@
 
-# BREAKING STEREOTYPES OF THE ELDERLY PROJECT
-
-
 >Aging is an extraordinary process where you become the person you always should have been. —David Bowie
 
 The purpose of this project is to challenge and dismantle common stereotypes associated with elderly individuals in the Scenic Rim. These stereotypes often include misconceptions about their abilities, interests, and overall contributions to society. By raising awareness about the diversity and capabilities of people over sixty-five in the local community this project supplies a voice that represents their concerns and perspective, and advocates for creating diverse, positive, and realistic portrayals of the elderly within media. This project aims to promote a more accurate, respectful, and inclusive understanding of aging in the elderly population.
