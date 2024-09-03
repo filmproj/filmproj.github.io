@@ -7,7 +7,7 @@ The purpose of this project is to challenge and dismantle common stereotypes ass
 
 The Breaking Stereotypes of the Elderly (BSE) project is dedicated to challenging and breaking the stereotypes surrounding elderly Australians over the age of sixty-five by telling authentic, diverse, and empowering stories that celebrate the richness of their lives. This project will allow older people to represent themselves, rather than being portrayed by other age groups which may represent cultural biases. The aim is to shift the narrative from one of limitation to one of vibrancy, resilience, and continued growth. Through compelling storytelling, a short film will portray elderly individuals not as marginalised or forgotten members of society, but as dynamic, multifaceted people who continue to inspire, contribute, and lead in ways that defy conventional expectations. Our mission is to create a powerful, positive representation that fosters respect, empathy, and a deeper understanding of the value that older generations bring to our world.
 
-**_Elderly Stereotypes_**
+**<ins>Elderly Stereotypes</ins>**
 
 Given the phenomenon of Australia’s aging population, now is an important moment to acknowledge the potential our older locals have to contribute to the community. The project views this type of discrimination from a cultural perspective, rather than from any individual’s perspective and therefore is not searching for a scapegoat, but rather is about understanding why negative stereotypes become prevalent within our communities. I hope to challenge negative depictions by showing the world from an older person’s perspective and allowing all sides of any issue to be told and provide a clear picture of how stereotypes reduce their identity to a set of negative characteristics.
 
@@ -23,7 +23,7 @@ Some examples of stereotyping include:
 Aging is just one aspect of a person’s identity, and older individuals have diverse experiences, interests, and abilities that extend far beyond their age. Defining any person solely on age leads to agism, which is discrimination based on age. Challenging these stereotypes is essential for fostering a more inclusive society where the elderly are valued for their contributions and experiences.
 
 
-**_Implementing Aims_**
+**<ins>Implementing Aims</ins>**
 
 To implement these aims, a short narrative fiction film will be developed with the aid of members of the community who are over sixty-five. A fictional film provides the ideal vehicle for participants and audiences to reflect on their role within their community. Because this project is about breaking stereotypes of the elderly in our community, people over the age of sixty-five will be asked to contribute their opinions on a diverge range of issues effecting them. The film story will come from older locals and be developed in a way to emphasise their concerns, the challenges they face and to highlight forms of discrimination that occur due to age. It is seen as crucial that the stories told don’t preach to a particular audience but rather explore different sides of an issue and allow ambiguities to exist. The project is not about demonising anyone but rather showing how unthoughtful actions potentially affect people in a negative way.
 
@@ -52,7 +52,7 @@ I am a researcher and practitioner, specialising in dramaturgy and adaptation, w
 There are three main phases to the project: finding a story, the film’s production and post-production. Because of the first two phases, there is an opportunity for people to only meet and discuss potential ideas and story, while other individuals may be interested in actively being involved in the film’s production. Everyone participating will be encouraged to try new tasks and express themselves in how they feel comfortable. The project is slated for nine months production timeline. This schedule allows for possible challenges and unexpected situations to be resolved conformably.
 
 
-**_Phase One: Finding stories (2 months)_**
+**<ins>Phase One: Finding stories (2 months)</ins>**
 
 ‘Finding a story’ is a process of developing a narrative film story. The potential audience for the film should appeal to all ages even though it focuses on the elderly. This will primarily be due to communicating a human story which dissolves boundaries between different age groups. This process is not about promoting any specific opinions within predefined age groups, but rather show through the onscreen drama how people are affected by actions. It is important not to preach, but asking questions, which don’t necessarily have an easy answers but portray significant issues.
 
@@ -63,14 +63,14 @@ This first phase has two parts:
 * Distilling down: Once we have collected enough story material for our film, a process of distilling the story to a tight narrative.
 
 
-**_Phase Two: Rehearsal and production (2 months)_**
+**<ins>Phase Two: Rehearsal and production (2 months)</ins>**
 
 The second phase involves the production of the film. During the production phase, the cast will likely include senior citizens as well as younger people based on the story created. A pre-production period includes rehearsals, where participants will be required to improvise. Also organisation of locations, hiring of crew and catering need to be completed before shooting.
 
 Production will take place over a two to three day shooting period which will be carefully organised.
 
 
-**_Phase Three: Post-production (5 months)_**
+**<ins>Phase Three: Post-production (5 months)</ins>**
 
 Post-production involves the editing, sound mixing and colour grading of the short film. Depending on how far I can stretch the budget, will dictate if I outsource the sound mixing and colour grading.
 
