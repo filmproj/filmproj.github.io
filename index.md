@@ -3,7 +3,7 @@
 
 The purpose of this project is to challenge and dismantle common stereotypes associated with elderly individuals. These stereotypes often include misconceptions about their abilities, interests, and overall contributions to society. By raising awareness about the diversity and capabilities of people over sixty-five in the local community this project supplies a voice that represents their concerns and perspective, and advocates for creating diverse, positive, and realistic portrayals of the elderly within media. This project aims to promote a more accurate, respectful, and inclusive understanding of aging in the elderly population.
 
-##MISSION STATEMENT
+## MISSION STATEMENT
 
 The Breaking Stereotypes of the Elderly (BSE) project is dedicated to challenging and breaking the stereotypes surrounding elderly Australians over the age of sixty-five by telling authentic, diverse, and empowering stories that celebrate the richness of their lives. This project will allow older people to represent themselves, rather than being portrayed by other age groups which may represent cultural biases. The aim is to shift the narrative from one of limitation to one of vibrancy, resilience, and continued growth. Through compelling storytelling, a short film will portray elderly individuals not as marginalised or forgotten members of society, but as dynamic, multifaceted people who continue to inspire, contribute, and lead in ways that defy conventional expectations. Our mission is to create a powerful, positive representation that fosters respect, empathy, and a deeper understanding of the value that older generations bring to our world.
 
@@ -29,7 +29,7 @@ To implement these aims, a short narrative fiction film will be developed with t
 
 Breaking Stereotypes will be made possible due to volunteer involvement. Without local’s contribution of their time, a project such as this is not possible. Because this project is **co-op**, everyone volunteering has joint ownership of the completed film. I hope the true value of participating is the shared experience of creating this film. There will be opportunities for volunteers to express themselves creatively and have new kinds of experiences.
 
-##OUTCOMES
+## OUTCOMES
 
 The outcome of this project will be a fictional narrative short film.
 
@@ -42,12 +42,12 @@ The aim to produce a **short** film is a realistic goal and is a focus on qualit
 **Film** is a wonderful medium for sharing. As well as dramatically engaging with an audience, it is an effective way to communicate to a broad variety of people. It can be screened for a particular audience, or posted on a sharing video platform, such as Vimeo or YouTube. The aim is to create something which can potentially reach a large audience. There is the possibility of submitting to film festivals around Australia as well as other opportunity for community screenings.
 
 
-##PROJECT DIRECTOR
+## PROJECT DIRECTOR
 
 I am a researcher and practitioner, specialising in dramaturgy and adaptation, with a strong performance and filmmaking background. I have written, directed, and produced six films ranging in duration from three to sixty-seven minutes and has performed professionally with physical theatre company, Frank Theatre, as well as had a broad range of theatrical experiences. I have performed at festivals in New York, Berlin, Prague, Belgrade, Edinburgh, and Sydney, and has twice toured to Japan. For more information, please visit [www.livingart.info](https://livingart.info).
 
 
-##TIMELINE
+## TIMELINE
 
 There are three main phases to the project: finding a story, the film’s production and post-production. Because of the first two phases, there is an opportunity for people to only meet and discuss potential ideas and story, while other individuals may be interested in actively being involved in the film’s production. Everyone participating will be encouraged to try new tasks and express themselves in how they feel comfortable. The project is slated for nine months production timeline. This schedule allows for possible challenges and unexpected situations to be resolved conformably.
 
@@ -74,7 +74,7 @@ Production will take place over a two to three day shooting period which will be
 
 Post-production involves the editing, sound mixing and colour grading of the short film. Depending on how far I can stretch the budget, will dictate if I outsource the sound mixing and colour grading.
 
-##EXAMPLES OF VIDEO WORK
+## EXAMPLES OF VIDEO WORK
 
 I have included three videos to illustrate work that I have produced in the past. Though they explore different themes and genres, the videos indicate the qualities of the short being produced. 
 
@@ -89,6 +89,6 @@ I have included three videos to illustrate work that I have produced in the past
 
 For more films, please visit my website www.livingart.info.
 
-##CONCLUSION
+## CONCLUSION
 
 This project seeks to help create a society where elderly individuals are recognised and valued for their contributions, abilities, and diverse experiences. By telling stories which challenge negative preconceptions of aging, we all profit from appreciating what elderly Australian have to offer.
