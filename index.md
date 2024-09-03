@@ -89,6 +89,6 @@ I have included three videos to illustrate work that I have produced in the past
 
 For more films, please visit my website www.livingart.info.
 
-## Conclusion
+## Contact
 
-This project seeks to help create a society where elderly individuals are recognised and valued for their contributions, abilities, and diverse experiences. By telling stories which challenge negative preconceptions of aging, we all profit from appreciating what elderly Australian have to offer.
+Please send all correspondence to [filmproj24@gmail.com](mailto:filmproj24@gmail.com).
