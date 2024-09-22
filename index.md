@@ -44,7 +44,7 @@ The aim to produce a **short** film is a realistic goal and is a focus on qualit
 
 ## Project Director
 
-I am a researcher and practitioner, specialising in dramaturgy and adaptation, with a strong performance and filmmaking background. I have written, directed, and produced six films ranging in duration from three to sixty-seven minutes and has performed professionally with physical theatre company, Frank Theatre, as well as had a broad range of theatrical experiences. I have performed at festivals in New York, Berlin, Prague, Belgrade, Edinburgh, and Sydney, and has twice toured to Japan. For more information, please visit [www.livingart.info](https://livingart.info).
+I am a researcher and practitioner, specialising in dramaturgy and adaptation, with a strong performance and filmmaking background. I have written, directed, and produced six films ranging in duration from three to sixty-seven minutes and has performed professionally with physical theatre company, Frank Theatre, as well as had a broad range of theatrical experiences. I have performed at festivals in New York, Berlin, Prague, Belgrade, Edinburgh, and Sydney, and has twice toured to Japan. For more information, please visit [www.willbligh.com](https://willbligh.com).
 
 
 ## Timeline
