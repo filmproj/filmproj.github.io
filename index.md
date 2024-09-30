@@ -41,12 +41,6 @@ The aim to produce a **short** film is a realistic goal and is a focus on qualit
 
 **Film** is a wonderful medium for sharing. As well as dramatically engaging with an audience, it is an effective way to communicate to a broad variety of people. It can be screened for a particular audience, or posted on a sharing video platform, such as Vimeo or YouTube. The aim is to create something which can potentially reach a large audience. There is the possibility of submitting to film festivals around Australia as well as other opportunity for community screenings.
 
-
-## Project Director
-
-I am a researcher and practitioner, specialising in dramaturgy and adaptation, with a strong performance and filmmaking background. I have written, directed, and produced six films ranging in duration from three to sixty-seven minutes and has performed professionally with physical theatre company, Frank Theatre, as well as had a broad range of theatrical experiences. I have performed at festivals in New York, Berlin, Prague, Belgrade, Edinburgh, and Sydney, and has twice toured to Japan. For more information, please visit [www.willbligh.com](https://willbligh.com).
-
-
 ## Timeline
 
 There are three main phases to the project: finding a story, the film’s production and post-production. Because of the first two phases, there is an opportunity for people to only meet and discuss potential ideas and story, while other individuals may be interested in actively being involved in the film’s production. Everyone participating will be encouraged to try new tasks and express themselves in how they feel comfortable. The project is slated for nine months production timeline. This schedule allows for possible challenges and unexpected situations to be resolved conformably.
