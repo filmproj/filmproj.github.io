@@ -1,6 +1,3 @@
-# CASTING CALL
-
-For a short drama film.
 
 The Breaking Stereotypes Project aims to challenge and dismantle common pre-conceptions of marginalised people in society.
  
