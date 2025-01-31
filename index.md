@@ -11,7 +11,7 @@ There are three principal roles that need to be cast:
 
 **POLLY** (short for Paula): Age 30-40. Wife of Ethan, estranged from her parents. She sleeps in their car as well.
 
-If you are interested in auditioning, please email Will at *filmproj24@gmail.com* for a copy of the script.
+If you are interested in auditioning, please email Will at *info@livingart.info* for a copy of the script.
 
 
 ### EXAMPLES OF VIDEO WORK
